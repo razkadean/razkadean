@@ -17,5 +17,4 @@
 
 ## 📫 Find me
 
-- 𝕏 — [@candlewrong](https://x.com/candlewrong)
 - Telegram — [@redonpro](https://t.me/redonpro)
